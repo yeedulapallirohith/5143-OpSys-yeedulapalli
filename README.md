@@ -1,7 +1,7 @@
 # 5143-OpSys-yeedulapalli
 
 
-![](http://tinypic.com/r/1zf2czp/9)
+![](http://i63.tinypic.com/1zf2czp.jpg)
 
 
 
